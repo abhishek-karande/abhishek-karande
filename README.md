@@ -27,7 +27,7 @@ I am a **Software Engineer** with **7+ years of experience** specializing in **J
 
 ## 🎯 Areas of Interest
 
-- 🚴 **Cycling & Professional Training** – Preparing for the **Sahyadri Classic Event** with a goal to turn professional.
+- 🚴 **Cycling & Professional Training** – Preparing for the **Sahyadri Classic Event**.
 - 🌾 **Sustainable Farming**.
 - 🎮 **Gaming & Binge-Watching** – Avid gamer and TV series enthusiast during leisure.
 
